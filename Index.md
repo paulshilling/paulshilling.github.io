@@ -1,3 +1,0 @@
-# Sigma 400
-
-[https://www.humphreysdesign.com/yacht-designs/sail/sigma-400/](https://www.humphreysdesign.com/yacht-designs/sail/sigma-400/)
